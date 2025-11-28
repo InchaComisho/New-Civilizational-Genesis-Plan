@@ -192,5 +192,34 @@ Hashtags (English)
 
 #PlanetRestoration #OceanBreathingSystem #DesertGreening #ArtificialSeawaterLake #PyramidCity #SustainableCivilization #CircularEconomy #EcosystemRecovery #RenewableEnergy #Hydroponics #ClimateAdaptation #BiodiversityRestoration #DeepOceanCooling #GlobalCoolingSystem #NewCivilization #NaturalLaw #EnvironmentalEngineering #GeophysicalRestoration #PerovskiteSolar #MicroGrid
 
-https://note.com/inchacomusho/n/nabc240558f24?app_launch=false
-https://note.com/inchacomusho/n/n499530f6a055
+六つの理（自然法則・調和・循環・構造・秩序・和）― 新文明創成計画
+https://note.com/inchacomusho/n/n26ce8a1f7632
+
+🌍 New Civilizational Genesis Plan
+https://note.com/inchacomusho/n/nabc240558f24
+
+🌏 新文明創成計画―要約版
+https://note.com/inchacomusho/n/ne4d28b3a86c2
+
+【第1部】思想のOS ― 六つの理（自然法則・調和・循環・構造・秩序・和）―新文明創成計画
+https://note.com/inchacomusho/n/n3996835a7643
+
+【第2部】海洋再生 ― 深海エアレーション × ピラミッド型海上ブイ― 新文明創成計画
+https://note.com/inchacomusho/n/n9f1378cd2543
+
+【第3部】砂漠再生 ― 人工淡水湖 × 海水湖 × 微生物OS再生― 新文明創成計画
+https://note.com/inchacomusho/n/n24388cb6cbf2
+
+【第4部】都市再生 ― ナノミスト冷却 × 分散エネルギー × 循環水路― 新文明創成計画
+https://note.com/inchacomusho/n/nd72c51071688
+
+【第5部】正八面体・上下ピラミッド型ビル― 新文明創成計画
+https://note.com/inchacomusho/n/n01826634212b
+
+【第6部】社会・経済・人口モデル― 新文明創成計画
+https://note.com/inchacomusho/n/nd017dcb9ac37
+
+【第7部】文明の未来展開― 新文明創成計画
+https://note.com/inchacomusho/n/n3dbf0e920289
+
+
