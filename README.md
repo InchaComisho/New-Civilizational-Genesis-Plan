@@ -2,8 +2,8 @@
 
 A Fully-Circulative Infrastructure Framework for Planetary Recovery
 
-Author: Master (inchacomisho / inchacomusho)
-Published: Nov 2025
+Author: Master (inchacomisho / inchacomusho)  
+Published: Nov 2025  
 License: Fully Open — Free to use, modify, translate, redistribute, or commercialize. No permission required.
 
 Abstract
