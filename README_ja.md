@@ -2,6 +2,8 @@
 
 **言語 / Language:** 日本語 | [English Version](README.md)
 
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/M6J122N2K2)
+
 ## New Civilizational Genesis Plan
 
 **地球再生のための完全循環インフラ体系**
